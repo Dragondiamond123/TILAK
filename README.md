@@ -1,2 +1,0 @@
-# TILAK
-OHJWFWPGF
